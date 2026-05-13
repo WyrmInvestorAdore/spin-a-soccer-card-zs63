@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://WyrmInvestorAdore.github.io/spin-a-soccer-card-zs63/) |
  |---------------------|----------------------:|
 
 
