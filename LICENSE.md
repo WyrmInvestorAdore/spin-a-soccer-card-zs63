@@ -1,4 +1,4 @@
-#  
+#  Experience spin a soccer card like never before with spin a soccer card Script hidden, the #1 Script. Includes auto-collect and auto-farm for
 
 
 
